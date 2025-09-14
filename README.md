@@ -1,7 +1,7 @@
 ## Meow
 
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JfbRrG1gocw?si=saMOmkpwgZXhKYcr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/JfbRrG1gocw?si=80HVkX61M_AurVSk/0.jpg)]([https://www.youtube.com/watch?v=YOUTUBE_VIDEO_ID_HERE](https://youtu.be/JfbRrG1gocw?si=80HVkX61M_AurVSk))
 LISTEN NOW LISTEN NEOWWW
 <!--
 **Your-Machine/Your-Machine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

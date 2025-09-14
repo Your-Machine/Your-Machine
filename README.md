@@ -1,8 +1,7 @@
 ## Meow
 
 
-[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/JfbRrG1gocw?si=80HVkX61M_AurVSk/0.jpg)]([https://www.youtube.com/watch?v=YOUTUBE_VIDEO_ID_HERE](https://youtu.be/JfbRrG1gocw?si=80HVkX61M_AurVSk))
-LISTEN NOW LISTEN NEOWWW
+[LISTEN NOW LISTEN NEOWWW](https://youtu.be/JfbRrG1gocw?si=80HVkX61M_AurVSk)
 <!--
 **Your-Machine/Your-Machine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

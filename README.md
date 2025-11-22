@@ -1,7 +1,7 @@
 ## Hypnofantasma album in link sorry it's my favorite ever
-
-
 [LISTEN NOW LISTEN NEOWWW](https://youtu.be/JfbRrG1gocw?si=80HVkX61M_AurVSk)
+
+<img src="https://blindingone.neocities.org/dumbshit/ILOVENECROZMA.gif">
 <!--
 **Your-Machine/Your-Machine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

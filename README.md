@@ -1,5 +1,4 @@
-## Hypnofantasma album in link sorry it's my favorite ever
-[LISTEN NOW LISTEN NEOWWW](https://youtu.be/JfbRrG1gocw?si=80HVkX61M_AurVSk)
+## MY NEOCITIES HAS A DRAWING THING LIKE STRAWPAGE DOES!!!! PLEASE DRAW ON MY NEOCITIES THANK U ^]
 
 <img src="https://blindingone.neocities.org/dumbshit/ILOVENECROZMA.gif">
 <!--
